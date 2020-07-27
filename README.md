@@ -1,1 +1,0 @@
-# lamdepthailan.github.io
